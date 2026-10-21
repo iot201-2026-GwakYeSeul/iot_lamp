@@ -1,4 +1,5 @@
 # iot_lamp
 
-Uploading KakaoTalk_20261021_235210537.mp4…
+
+https://github.com/user-attachments/assets/c05e0f60-a6c6-4d2d-87c8-a54ed0f9c4fa
 
